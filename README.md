@@ -1,11 +1,4 @@
-###Proyecto final de marca personal
 
-Encuentra cómo construir tu marca personal desde cero en:
-
-www.platzi.com/marca
-
-
-***
 
 ###Créditos del "TEMPLATE"
 
